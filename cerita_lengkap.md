@@ -1,0 +1,6 @@
+### Cerpen Si Kancil\n
+Bagian 1: Pembukaan – Kenalin Si Kancil
+
+Di sebuah hutan yang subur dan hijau, hiduplah seekor Kancil yang terkenal cerdik dan penuh rasa ingin tahu. Namanya Si Kancil. Meskipun badannya kecil, kepintaran dan keberaniannya membuat dia disegani oleh hewan-hewan lain di hutan. Setiap hari, Si Kancil selalu berkeliling hutan, mencari petualangan baru. Ia senang memecahkan masalah dan menolong teman-temannya yang sedang kesulitan. Suatu hari, ia merasa ada sesuatu yang menarik menantinya di luar sana. Maka dimulailah petualangan seru Si Kancil!
+Bagian 2: Kancil Keliling Hutan
+Saat berjalan-jalan di dalam hutan, Si Kancil bertemu dengan Harimau yang sedang kelaparan. "Hei, Kancil! Sudah lama aku tidak makan daging segar. Kau datang di saat yang tepat!" kata Harimau sambil menjilat bibirnya. Namun, Si Kancil tidak kehilangan akal. Dengan cepat ia berkata, "Ah, Harimau, kau benar-benar tidak tahu? Raja hutan baru saja mengirimkan perintah agar tidak ada hewan yang memakan kancil hari ini. Jika kau melanggarnya, kau akan dihukum." Harimau yang mudah percaya pun ketakutan dan membiarkan Si Kancil pergi. Dengan senyum cerdik, Si Kancil melanjutkan perjalanannya, selamat dari bahaya berkat akalnya yang tajam.
